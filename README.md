@@ -1,3 +1,4 @@
 ## Hi, I`m VlaDMaV 💪
 
-🃏 tg - @vladmav_11
+⚡ MCU Programmer | 🖥 Backend Developer
+🃏 ```tg - @vladmav_11```
